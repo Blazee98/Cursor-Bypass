@@ -17,3 +17,5 @@ Enter your email address, then scroll down and click the 'Email sign-in code' bu
 Once you're done, you’ll have access to an unlimited trial of Cursor AI!
 
 Enjoy exploring Cursor AI with no restrictions and have fun! 🎉
+
+![image](https://github.com/user-attachments/assets/9cb1edc8-74d1-4d9b-bb4b-06612f21274a)
