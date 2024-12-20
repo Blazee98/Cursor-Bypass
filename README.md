@@ -19,3 +19,5 @@ Once you're done, you’ll have access to an unlimited trial of Cursor AI!
 Enjoy exploring Cursor AI with no restrictions and have fun! 🎉
 
 ![image](https://github.com/user-attachments/assets/9cb1edc8-74d1-4d9b-bb4b-06612f21274a)
+![image](https://github.com/user-attachments/assets/5976938f-f838-4bf8-8b05-1fc0247fcde5)
+good work
